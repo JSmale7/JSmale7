@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I am excited to start my coding journey! 
+
+With a passion for learning and problem solving my introduction to coding has proved fascinating and intriguing. 
